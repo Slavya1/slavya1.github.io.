@@ -1,1 +1,1 @@
-# slavya1.github.io.
+# slavya1.github.io
